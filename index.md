@@ -1,5 +1,3 @@
-# My Resume
-
 ## W. Abram Astle - Potato Lovin' Idahoan and Builder 🥔
 
 ---
